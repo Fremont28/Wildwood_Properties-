@@ -13,4 +13,4 @@ The majority of listings in Wildwood are clustered in North Wildwood and Wildwoo
 
 Slightly over 50% of the listings were asking between $169,000 and $365,000 with around 25% falling above and below these latter and former marks respectively. The most popular rentals sold are located on 500 Kennedy Drive (23 condos, 1 townhouse), 225 East Wildwood Avenue (16 condos), and 1800 Ocean Avenue (14 condos).
 
-Read Here: 
+Read Here: https://beyondtheaverage.wordpress.com/2019/06/17/wildwoods-red-hot-real-estate-market/
